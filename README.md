@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **kartikaynarula@gmail.com**
 
-- 📄 Know about my experiences ([My Resume](https://drive.google.com/file/d/1nc9ZkkyBBjk0ekPxOI0MOXnT7qekUrGW/view?usp=sharing))
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1nc9ZkkyBBjk0ekPxOI0MOXnT7qekUrGW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
